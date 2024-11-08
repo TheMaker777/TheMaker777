@@ -2,7 +2,7 @@
 - 👀 I’m interested in Skibidi Ohio Rizz
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on Nothing Ever
-- 📫 How to reach me... No, I'm A Freakin Child
+- 📫 How to reach me... STRANGER DANGER
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm A Monke
 
